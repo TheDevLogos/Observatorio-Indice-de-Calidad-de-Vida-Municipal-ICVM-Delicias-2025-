@@ -1,0 +1,1 @@
+# Observatorio-Indice-de-Calidad-de-Vida-Municipal-ICVM-Delicias-2025-
